@@ -1,4 +1,4 @@
-# 
+# smart NFT Mint Bot for nft trading bot | take-profit & cross-market-arbitrage offers the most advanced nft trading bot, with take-profit and cross-market-arbitrage. Ideal for
 
 
 
